@@ -1,0 +1,1 @@
+# wts-full-logo
